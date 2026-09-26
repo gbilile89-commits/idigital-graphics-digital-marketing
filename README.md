@@ -1,4 +1,4 @@
-<img width="2480" height="3508" alt="poster" src="https://github.com/user-attachments/assets/2e60295d-6951-44ae-bfa7-da1a8c10a43d" /># iDigital — Graphic Design & Digital Marketing
+iDigital — Graphic Design & Digital Marketing
 
 ## Project Overview
 
